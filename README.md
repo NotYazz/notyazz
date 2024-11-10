@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+- uh i make cool stuff trust 💯
 <!--
 **NotYazz/notyazz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
